@@ -1,4 +1,4 @@
-# Sonder 🌎🤟
+# Sonder Mobile 🌎🤟
 
 ### Accessible ASL Learning, AI-Assisted Communication & Environmental Awareness
 
